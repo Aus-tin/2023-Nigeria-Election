@@ -1,0 +1,1 @@
+The three key contestant are PETER OBI,AMED TINUBU AND ATIKU ABUBAKAR
